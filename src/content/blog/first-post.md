@@ -12,7 +12,7 @@ Un día soleado y lleno de energía, fue el fin de unas 4 noches frías llenas d
 Por último recordé ese viejo amor, el mejor de todos por el simple hecho de que fue el menos peor de todos, me hago pajas mentales imaginándome lo que hubiese sido. UTÓPICO pero para eso es lo único que la imaginación funciona. En 25 septiembres vivir en la cuerda floja con todos los amores que han pasado a lo largo de mi vida se ha vuelto una rutina y cuando llegue ese amor soñado todo será más fácil por la experiencia adquirida a través de los años.
 
 
- Jueves 31 de marzo 2023 | 12:31 a.m
+ Jueves 31 de marzo 2021 | 12:31 a.m
 
 
                                                                             
