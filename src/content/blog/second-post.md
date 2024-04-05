@@ -1,5 +1,5 @@
 ---
-title: 'Lunes 8 abril'
+title: 'Entre ideales y realidades.'
 description: 'Un laberinto emocional'
 pubDate: 'March 25 2024'
 heroImage: '/Post2.jpeg'
